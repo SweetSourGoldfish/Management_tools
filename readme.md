@@ -2,4 +2,4 @@
 
 
 
-![微信图片_20240421023459](C:\Users\cjy\Desktop\咸鱼\微信图片_20240421023459.png)
+<img width="857" alt="微信图片_20240421023459" src="https://github.com/SweetSourGoldfish/Management_tools/assets/167097306/6b038c25-0bba-42d8-8884-c2fa3694529c">
